@@ -1,0 +1,1 @@
+# vnv_seminar_2025_demo
